@@ -1,16 +1,19 @@
-## Hi there 👋
+# ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
-<!--
-**stupidsketchpad/stupidsketchpad** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## ' ' well, hello everyone! ' '
 
-Here are some ideas to get you started:
+### i mainly go by paper
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### any/all pronouns, spin a wheel
+
+### i might act a bit childish at times, and if i do, i'm sorry
+
+## ᝰ PLEASE INT IF YOU LIKE . . . 
+
+### object shows <sub> mainly bfdi, ii, and object invasion </sub> eddsworld, or forsaken.
+
+## DNI IF YOU...
+
+### really are just a mean person.
+
+# ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
