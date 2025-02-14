@@ -1,19 +1,15 @@
- ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+
+┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
 ## ' ' well, hello everyone! ' '
 
 ✦ i mainly go by paper
 
-✦ any/all pronouns, spin a wheel
+✦ any/all pronouns, spin a wheel or smth
 
-✦ i might act a bit childish at times, and if i do, i'm sorry
+✦ i hang out by docks, or i'm in a rp (usually labs)
 
 ## ᝰ PLEASE INT IF YOU LIKE . . . 
 
 ✦ object shows, eddsworld, or forsaken.
-
-## DNI IF YOU...
-
-✦ really are just a mean person.
-
-┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
