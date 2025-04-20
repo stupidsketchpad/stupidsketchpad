@@ -7,4 +7,4 @@
 
 ✦ any/all pronouns, spin a wheel or smth
 
-✦ i like object shows and uhhh forsaken. sorry guys 😓
+✦ fandoms are forever changing, right now it's mostly epic the musical and forsaken. and a little bit of object shows
