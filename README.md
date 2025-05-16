@@ -1,6 +1,3 @@
-
-┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
-
 hi i am paper i like things
 
 
