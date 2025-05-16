@@ -1,10 +1,10 @@
 
 ┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
 
-## ' ' well, hello everyone! ' '
+hi i am paper i like things
 
-✦ i mainly go by paper
 
-✦ any/all pronouns, spin a wheel or smth
+ok but i actually like epic the musical, forsaken, object shows, drawing, and writing.
 
-✦ fandoms are forever changing, right now it's mostly epic the musical and forsaken. and a little bit of object shows
+i could make trhis better but i'm tired man
+
